@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MankoLoli
+- 👀 I’m interested in reading and drawing
+- 🌱 I’m currently learning psychology 
+- 💞️ I’m looking to collaborate on technology
+- 📫 I only have 2 emails, which I will not share unless your a trusted worker
